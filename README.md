@@ -8,4 +8,4 @@ teamDemo discord: https://discord.gg/sMHCzsh
 
 ## Görsel/Video
 
-https://streamable.com/1v4hyo
+https://streamable.com/0zcd9q
